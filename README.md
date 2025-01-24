@@ -1,4 +1,4 @@
-## Jabari Sterling assignment 2 
+## Jabari Sterling assignment 2 click below on image
 [image](assignment_02.png)
 
 
